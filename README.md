@@ -1,0 +1,2 @@
+# blooket
+hacks for school 
